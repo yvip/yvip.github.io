@@ -2,4 +2,5 @@
 
 如果扣扣暂时加不了，请加QQ群：754367592
 
-如不方便加QQ，可以加与你号：yyyvip（与你官网： https://www.yuni.com.cn 下载安装与你app，注册登录，搜索与你号，添加好友 ）
+如不方便加QQ，可以加与你号：yyyvip（与你官网： https://www.yuni.com.cn 
+下载安装与你app，注册登录，搜索与你号，添加好友 ）
